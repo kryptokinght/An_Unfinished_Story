@@ -12,3 +12,4 @@ The morning arrived but not John. Everyone started packing because the trip has 
 When somone says there is always someone in this world who will love you unconditionally, (to be continued...)  
 
 DAY 2 ()
+NOTE: All characters are fictional. Please don't compare with any real person. 
